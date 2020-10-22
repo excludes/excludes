@@ -1,1 +1,2 @@
-### Hi there 👋
+### i'm excludes / lucy :3
+
